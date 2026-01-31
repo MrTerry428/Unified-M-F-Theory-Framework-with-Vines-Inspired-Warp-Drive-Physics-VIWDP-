@@ -1,4 +1,4 @@
-Merged and Enhanced Version: Unified M/F-Theory Framework with Vines-Inspired Warp Drive Physics (VIWDP) – Enhanced Spin, Nacelle & Fusion Edition
+UPDATED ... Merged and Enhanced Version: Unified M/F-Theory Framework with Vines-Inspired Warp Drive Physics (VIWDP) – Enhanced Spin, Nacelle & Fusion Edition
 Authors: Terry L. Vines, Terry D. Vines
  Date: January 31, 2026
  License: Creative Commons Attribution–NonCommercial–ShareAlike 4.0
